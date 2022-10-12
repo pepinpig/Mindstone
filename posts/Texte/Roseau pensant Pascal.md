@@ -1,0 +1,1 @@
+“_L’homme n’est qu’un roseau, le plus faible de la nature; mais c’est un roseau pensant. Il ne faut pas que l’univers entier s’arme pour l’écraser : une vapeur, une goutte d’eau suffit pour le tuer. Mais quand l’univers l’écraserait, l’homme serait encore plus noble que ce qui le tue, parce qu’il sait qu’il meurt, et l’avantage que l’univers a sur lui, l’univers n’en sait rien_”

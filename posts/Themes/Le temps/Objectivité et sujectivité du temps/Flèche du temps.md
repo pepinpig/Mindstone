@@ -1,0 +1,2 @@
+>il y a au moins trois flèches de temps qui distinguent effectivement le passé du futur. Ce sont les flèches thermodynamique, direction du temps qui accroît le désordre ; psychologique, direction du temps dans laquelle nous nous souvenons du passé et non pas du futur ; et cosmologique, direction du temps dans laquelle l’Univers se dilate au lieu de se contracter.
+>-Stephen Hawking
